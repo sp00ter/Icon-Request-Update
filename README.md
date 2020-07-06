@@ -1,5 +1,6 @@
 # Icon-Request-Update
 Please read - Reason for icon request being taken offline.
+
 Okay guys, so i know this isn't the place at all to talk personal issues but I owe you all an explanation and an update on how future development is going to proceed. It has come to my attention recently that I have not been as good of a husband/father as I should be and I have been more attentive to this part of my life rather than what's truly important; showing my daughter what the world has to offer.
 
 I can only hope that my daughter can find and surround herself with people that have been as amazing as all of you have. I have met so many amazing people and made some truly good friends that I hope I never lose contact with.
